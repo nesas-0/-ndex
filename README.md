@@ -1,0 +1,2 @@
+# -ndex
+Nesas için
